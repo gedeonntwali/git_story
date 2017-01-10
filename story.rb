@@ -1,1 +1,1 @@
-My name is Gedeon Ntwali, and I am a student at Kepler Kigali in Year 2. I am doing Business Management in my BA Degree
+My name is Gedeon Ntwali, and I am a student at Kepler Kigali in Year 2. I am doing Business Management in my BA Degree here at Kepler. In this coming three months, I will be taking short courses about Coding.
